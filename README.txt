@@ -1,1 +1,1 @@
-https://github.com/user-attachments/assets/aa58ad8d-d052-4daf-8b0b-07bae0330697
+https://github.com/PlayerBosta/SummonGalore/issues/2#issue-2501679703
